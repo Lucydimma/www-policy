@@ -36,14 +36,14 @@ As part of my responsibilities as a Leader:
 
 By my signature below, I acknowledge that I have read and understand the terms of this Commitment and any materials referenced herein, and agree to be bound and abide by all of the requirements, obligations, and duties set forth herein. 
 
-Leader Name:
+Leader Name: Nnamani lucy
 
-Leader Company:
+Leader Company: Main fix
 
-Leader E-Mail:
+Leader E-Mail:chidimmalucy99@gmail.com
 
-Leader Phone:
+Leader Phone: 08153034371
 
-Date:
+Date: 07/09/2023
 
-Signature:
+Signature: chidimma
